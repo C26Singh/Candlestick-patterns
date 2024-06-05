@@ -11,7 +11,14 @@
 ![image](https://github.com/C26Singh/Candlestick-patterns/assets/163007973/37b3e1f0-aaaf-4b74-bce4-385085ba15c2)
 ![image](https://github.com/C26Singh/Candlestick-patterns/assets/163007973/b5961bca-9de1-48a7-ba69-04df67ddc8b1)
 ![image](https://github.com/C26Singh/Candlestick-patterns/assets/163007973/6bec5e3a-0ea1-4857-8101-c06c757ffa72)
+![image](https://github.com/C26Singh/Candlestick-patterns/assets/163007973/7188b2be-569c-4f8c-9a2a-a679c8a6a59b)
+![image](https://github.com/C26Singh/Candlestick-patterns/assets/163007973/994339d2-4991-4625-9789-d3488f06271f)
+![image](https://github.com/C26Singh/Candlestick-patterns/assets/163007973/6d0159e9-253f-4305-a295-a59dbce4d397)
+![image](https://github.com/C26Singh/Candlestick-patterns/assets/163007973/c1225107-8f53-4234-a7b9-bd1793f9762a)
 ![Uploading image.png…]()
+
+
+
 
 
 
